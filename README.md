@@ -48,7 +48,7 @@
 
 ### ❤️ Let's Connect!
 
-- 💼 LinkedIn: [Coming Soon]
+- 💼 LinkedIn: www.linkedin.com/in/taha-mehmood-indhar-568431255
 - 🧠 Portfolio: [In Progress]
 - 📬 Email: **adiltaha193@gmail.com**
 
